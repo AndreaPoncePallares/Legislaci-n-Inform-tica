@@ -1,1 +1,1 @@
-# Legislaci-n-Inform-tica
+# Legislacion-Informatica
